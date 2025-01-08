@@ -1,6 +1,17 @@
 # ++Veja-video-policia-investiga-video-de-mulheres-que-tiveram-cabelos-raspados-a-forca-em-do-rio
 
 Mulher fica ferida dentro da Fiocruz em operação policial no RJ; suspeito é morto na região
+
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+
 Vigilante da Fundação Oswaldo Cruz, em Manguinhos, foi preso durante uma ação da Operação Torniquete
 
 Rafaela Cascardoda CNN , Rio de Janeiro
